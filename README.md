@@ -1,5 +1,5 @@
 # About Me:
-💼 SDE @ mNivesh| Ex-Nokia | 📱 Mobile App Developer<br><br>🎓 Final Year CSE Student at Manipal University, Jaipur<br><br>👨‍💻 Passionate about crafting seamless mobile experiences<br><br>🧠 Strong foundation in software development and team leadership<br><br>🚀 Always eager to learn, innovate, and solve real-world problems<br><br>🤝 Looking to contribute to dynamic and growth-driven tech teams
+💼 SDE @ mNivesh | Ex-Nokia | 📱 Mobile App Developer<br><br>🎓 Final Year CSE Student at Manipal University, Jaipur<br><br>👨‍💻 Passionate about crafting seamless mobile experiences<br><br>🧠 Strong foundation in software development and team leadership<br><br>🚀 Always eager to learn, innovate, and solve real-world problems<br><br>🤝 Looking to contribute to dynamic and growth-driven tech teams
 
 
 ## 🌐 Socials:
